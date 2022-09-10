@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 # 💫 About Me:
-🔭 I’m currently working on Hi.<br>      I am an accountant and bachelor business administration. <br>      Future data scientist  <br><br>👯 I’m looking to collaborate on projects of maching learning, data science. <br>      Artificial vision, backend, Javascript or Python.<br><br>🤝 I’m looking for help with with R language, blockchain, ecommerce, dropshippers.<br>      Social and collaborative businesses <br><br>🌱 I’m currently learning  at the same time, database, R language, Python and Javascript.<br>      Genetic algorithms. <br> <br>       I am interested in trading, collaborative business. <br>       Cryptocurrencies and NTF, metaverse and smart contracts<br><br>💬 Ask me about what you want or need. I hope I can help you<br><br>
+🔭 I’m currently working on diferent project.<br>      I am an accountant and bachelor business administration. <br>      Future data scientist  <br><br>👯 I’m looking to collaborate on projects of maching learning, data science. <br>      Artificial vision, backend, Javascript or Python.<br><br>🤝 I’m looking for help with with R language, blockchain, ecommerce, dropshippers.<br>      Social and collaborative businesses <br><br>🌱 I’m currently learning  at the same time, database, R language, Python and Javascript.<br>      Genetic algorithms. <br> <br>       I am interested in trading, collaborative business. <br>       Cryptocurrencies and NTF, metaverse and smart contracts<br><br>💬 Ask me about what you want or need. I hope I can help you<br><br>
 
 
 ## 🌐 Socials:
